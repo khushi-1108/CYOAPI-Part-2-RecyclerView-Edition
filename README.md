@@ -6,7 +6,7 @@
 
 Submitted by: **Khushi Jariwala**
 
-Time spent: **10** hours spent in total
+Time spent: **72** hours spent in total
 
 ## Summary
 
